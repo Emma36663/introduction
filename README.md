@@ -9,4 +9,4 @@ My hobbits include playing volleyball(for 5 years), dancing(ballet for 9 years a
 
 I enjoy participating in charity events, such as tutoring peers (related to Algebra 2 and Precalculus) and primary school kids (about English and floristry). I also participate as a volunteer in Shanghai Fudan Hospital (for 40+ hours).
 
-Currently, my dream major is bioinformatics, as I'm really passion and curious towards biology and programming. I would like to go to America when 
+Currently, my dream major is bioinformatics, as I'm really passion and curious towards biology and programming. I would like to go to America for college.
